@@ -1,6 +1,6 @@
 # Hi, I'm Om Narawade 👋
 
-**Field Data Scientist · Geo AI · Deep Learning**
+**Field Data Scientist · Geo AI · Sports Analytics · Deep Learning**
 Pune, Maharashtra, India
 
 ---
